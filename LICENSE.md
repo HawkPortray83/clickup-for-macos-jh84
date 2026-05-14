@@ -1,4 +1,4 @@
-#  
+#  Enhance Trello for macOS with Trello for macOS premium Integration: real-time editing & AI assistant, the #1 integration. Includes real-time editing and AI assistant for a
 
 
 
